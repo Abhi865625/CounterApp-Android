@@ -5,3 +5,11 @@
 
 
 ![Screenshot 2023-09-03 135445](https://github.com/Abhi865625/CounterApp-Android/assets/93569162/45d36d10-6d1b-43e6-afc0-167d5abc44b5)
+
+
+
+
+
+https://github.com/Abhi865625/CounterApp-Android/assets/93569162/1929b8ec-2f57-4039-9193-4c2de7ca18c2
+
+
